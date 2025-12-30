@@ -7,7 +7,7 @@ ___
 
 Physic Chemie d'wÅRdginal LOMONOSOV & MENdELEEV enad dialect Pycckuü [Русский] (Py_C_ckuü Physic_Chemie_sky or ₽_RussiAN & $_RussiAИ same de_Rußi и.в.µრ_ed ☲ 🔥) incl. ДВиЖениЯR НАПРАВЛЕНИИ УПРАВЛиНИu® УПРАВЛЕНИµЯR
 
-Addeდბი (added by A.bARIONLeg.C.i.u. @20251230_17:35) 
+Addeდბი (added by A.bARIONLeg.C.i.u. irakli.b.@20251230_17:35) 
 
 ___
 ___
